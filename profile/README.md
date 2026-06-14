@@ -1,3 +1,3 @@
-Agora is a society for institution makers at Harvard. Comprised of a men's and women's club, Agora is cultivating a space for grand ambition and thoughtful pursuit.
+Agora is a society for institution makers. Founded on the belief that great institutions are the shadows of great character, Agora gathers the ambitious and thoughtful to create the technology and seed the culture of an enduring future.
 
-Originally founded in 2024, Agora members have started venture-backed companies, studied abroad as Rhodes Scholars, led entrepreneurship programs on campus, and spearheaded deep research at frontier labs.
+We look for those who question complacency, actualize potential, and heed the call. We measure ourselves by the philosopher-architects we produce and the institutions we go on to found.
